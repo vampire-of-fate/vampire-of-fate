@@ -1,6 +1,5 @@
 > [!NOTE]
 > I am completely redoing this! View my pronouns page for information + boundaries.
-="https://github.com/user-attachments/assets/92764545-c035-46ff-bce1-adf04c62366c" height="30"/>
   
 [ata](https://vampire-of-fate.atabook.org/)  |  [pronouns page](https://en.pronouns.page/@vampire-of-fate)
 
