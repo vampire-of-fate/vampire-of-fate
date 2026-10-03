@@ -1,9 +1,6 @@
 > [!NOTE]
 > I am completely redoing this! View my pronouns page for information + boundaries.
   
-<p align="center"> 
-  [ata](https://vampire-of-fate.atabook.org/)  |  [pronouns page](https://en.pronouns.page/@vampire-of-fate)
-</p>
 <p align="center"><a href="https://vampire-of-fate.atabook.org/">ata</a> | <a href="https://en.pronouns.page/@vampire-of-fate">pronouns page</a></p>
 
 <br />
