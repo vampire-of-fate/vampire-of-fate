@@ -2,7 +2,7 @@
 > I am completely redoing this! View my pronouns page for information + boundaries.
   
 <p align="center"> 
-  <a href=[ata](https://vampire-of-fate.atabook.org/)  |  [pronouns page](https://en.pronouns.page/@vampire-of-fate)
+  [ata](https://vampire-of-fate.atabook.org/)  |  [pronouns page](https://en.pronouns.page/@vampire-of-fate)
 </p>
 
 <br />
