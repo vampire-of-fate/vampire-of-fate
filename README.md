@@ -1,5 +1,7 @@
 > [!NOTE]
 > I am completely redoing this! View my strawpage for information and my pronouns page for pronouns & boundaries.
+
+<p align="center">spam follow accounts will be ignored.</p>
   
 <p align="center"><a href="https://vampire-of-fate.atabook.org/">ata</a> | <a href="https://en.pronouns.page/@vampire-of-fate">pronouns page</a> | <a href="https://vampire-of-fate.straw.page">strawpage</a></p> 
 
