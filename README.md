@@ -13,3 +13,8 @@
   </a>
 </p>
 
+<br />
+
+<p align="center">
+  <a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fvampire-of-fate"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fvampire-of-fate&label=puppets&labelColor=%23000000&countColor=%232cccf4" /></a>
+</p>
