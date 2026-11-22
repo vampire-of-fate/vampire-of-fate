@@ -15,9 +15,9 @@
 <p align="center">
 <details>
   <summary> info </summary>
-    <p> this is a HUGE wip,, layout taken from my alt </p>
-    <p> text </p>
-    <p> text </p>
+    <p> HUGE fan of warrior cats </p>
+    <p> usually offtab, please whisper. </p>
+    <p> don't be afraid to interact,, I don't bite. </p>
 </details>
     </p>
       
